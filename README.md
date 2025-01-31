@@ -39,3 +39,4 @@ video hướng dẫn cách hack nếu ko hiểu: https://www.youtube.com/watch?v
 © Bản quyền thuộc về ziim
 © Copyright ziim ☞ Do not Reup!
 made by toản/ziim
+bản hack mới khi bên trên bị lỗi: https://www.mediafire.com/file/qtrr5co65tmeocf/DeltaVNG+V4+HuyMythic.ipa/file?dkey=qtrr5co65tmeocf&dkey=qtrr5co65tmeocf
